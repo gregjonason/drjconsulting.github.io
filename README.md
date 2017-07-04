@@ -1,2 +1,0 @@
-# drjconsulting
-Dr. J Consulting
